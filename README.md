@@ -1,0 +1,2 @@
+# CampusIQ
+TEAM NAME QUADIX
